@@ -1,5 +1,5 @@
 
-### Olá! Meu nome é Pedro Nunes 🙂
+### Olá! Meu nome é Pedro Henrique de Oliveira Nunes 🙂
 #### Atualmente estou no 4° período cursando Engenharia de Controle e Automação na Universidade Federal de Minas Gerais (UFMG).
 
 <br/>
