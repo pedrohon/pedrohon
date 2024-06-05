@@ -1,6 +1,6 @@
 
 ### Olá! Meu nome é Pedro Henrique de Oliveira Nunes 🙂
-#### Atualmente estou no 5° período cursando Engenharia de Controle e Automação na Universidade Federal de Minas Gerais (UFMG).
+#### Atualmente estou no 6° período cursando Engenharia de Controle e Automação na Universidade Federal de Minas Gerais (UFMG).
 
 <br/>
 
